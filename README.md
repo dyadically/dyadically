@@ -1,1 +1,1 @@
-curto javascript e python 
+drugs
